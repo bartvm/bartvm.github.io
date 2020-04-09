@@ -1,3 +1,5 @@
+_Nederlandse uitnodiging volgt hieronder._
+
 # Turning 30!
 
 On April 14 I will be turning 30. I will host a virtual birthday party on April 13 (Easter Monday) starting at 1pm ET (7pm CET) and I would love for you to come!
@@ -12,9 +14,9 @@ _If you are having trouble connecting, feel free to reach out to me by e-mail ([
 
 # Ik word 30!
 
-Op 14 april word ik 30 jaar! Om dat te vieren houd ik een virtueel verjaardagsfeest op 13 april (Paasmaandag) om 19.00 uur MET (13.00 uur EST) en jullie zijn van harte uitgenodigd.
+Op 14 april word ik 30 jaar! Om dat te vieren houd ik een virtueel verjaardagsfeest op 13 april (Paasmaandag) om 19.00 uur Nederlandse tijd (13.00 uur EST) en jullie zijn van harte uitgenodigd.
 
-Om 20.00 uur MET (14.00 uur EST) hebben we een pubquiz om jullie kennis over Canada, Nederland, en vreemde weetjes op de proef te stellen.
+Om 20.00 uur Nederlandse tijd (14.00 uur ET) hebben we een pubquiz om jullie kennis over Canada, Nederland, en vreemde weetjes op de proef te stellen.
 
 Als je mee wilt feesten, ga dan op 13 april naar [https://meet.google.com/ixj-accw-gap](https://meet.google.com/ixj-accw-gap). Voel je vrij om op elk moment in te loggen, al is het maar voor een paar minuten.
 
