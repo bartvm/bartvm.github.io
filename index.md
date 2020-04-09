@@ -8,7 +8,7 @@ On the day, please join the Google Meet event at [https://meet.google.com/ixj-ac
 
 Hope to see you Monday!
 
-_If you are having trouble connection, feel free to reach out to me by e-mail ([bart.vanmerrienboer@gmail.com](mailto:bart.vanmerrienboer@gmail.com)) or WhatsApp (1-970-227-7090)._
+_If you are having trouble connecting, feel free to reach out to me by e-mail ([bart.vanmerrienboer@gmail.com](mailto:bart.vanmerrienboer@gmail.com)) or WhatsApp (1-970-227-7090)._
 
 # Ik word 30!
 
