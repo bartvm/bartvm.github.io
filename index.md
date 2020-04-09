@@ -14,6 +14,6 @@ Op 14 april word ik 30 jaar! Om dat te vieren houd ik een virtueel verjaardagsfe
 
 Om 20.00 uur MET (14.00 uur EST) hebben we een pubquiz om jullie kennis over Canada, Nederland, en vreemde weetjes op de proef te stellen.
 
-Als je mee wilt feesten, bezoek dan op 13 april de [https://meet.google.com/ixj-accw-gap](https://meet.google.com/ixj-accw-gap). Voel je vrij om op elk moment in te loggen, al is het maar voor een paar minuten.
+Als je mee wilt feesten, ga dan op 13 april naar [https://meet.google.com/ixj-accw-gap](https://meet.google.com/ixj-accw-gap). Voel je vrij om op elk moment in te loggen, al is het maar voor een paar minuten.
 
 Tot maandag!
