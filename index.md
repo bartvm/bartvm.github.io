@@ -4,7 +4,7 @@ _Nederlandse uitnodiging volgt hieronder._
 
 On April 14 I will be turning 30. I will host a virtual birthday party on April 13 (Easter Monday) starting at 1pm ET (7pm CET) and I would love for you to come!
 
-We will have a birthday pub quiz starting at 2pm ET (8pm CET) to test your knowledge about the Netherlands, Canada, and random trivia.
+We will have a birthday pub quiz starting at 2pm ET (8pm CET) to test your knowledge about the Netherlands, Canada, and random trivia. You can form a team in advance if you want, or just join a team on the day.
 
 On the day, please join the Google Meet event at [https://meet.google.com/ixj-accw-gap](https://meet.google.com/ixj-accw-gap). Feel free to join at any time, even if just for a few minutes.
 
@@ -16,7 +16,7 @@ _If you are having trouble connecting, feel free to reach out to me by e-mail ([
 
 Op 14 april word ik 30 jaar! Om dat te vieren houd ik een virtueel verjaardagsfeest op 13 april (Paasmaandag) om 19.00 uur Nederlandse tijd (13.00 uur EST) en jullie zijn van harte uitgenodigd.
 
-Om 20.00 uur Nederlandse tijd (14.00 uur ET) hebben we een pubquiz om jullie kennis over Canada, Nederland, en vreemde weetjes op de proef te stellen.
+Om 20.00 uur Nederlandse tijd (14.00 uur ET) hebben we een pubquiz om jullie kennis over Canada, Nederland, en vreemde weetjes op de proef te stellen. Je kunt van tevoren een team vormen, of op de dag zelf je bij een team aansluiten.
 
 Als je mee wilt feesten, ga dan op 13 april naar [https://meet.google.com/ixj-accw-gap](https://meet.google.com/ixj-accw-gap). Voel je vrij om op elk moment in te loggen, al is het maar voor een paar minuten.
 
