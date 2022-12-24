@@ -1,0 +1,2 @@
+User-Agent: *
+Sitemap: https://bartvm.github.io/sitemap.xml
